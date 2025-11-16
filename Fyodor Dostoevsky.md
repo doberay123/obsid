@@ -1,0 +1,9 @@
+Author of:
+* [[Crime and Punishment]]
+* [[The Brothers Karamazov]]
+* [[The Idiot]]
+* [[White Nights]]
+
+Themes:
+* [[The Nature of Guilt]]
+* [[Nihilism]]
