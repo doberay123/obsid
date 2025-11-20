@@ -16,7 +16,7 @@ End: So overall, i am exited to be a part of the new MD course and be one of the
 Yap about support and shit
 
 
-# What do you know about the day in the life of a doctor
+# What do you know about the |life/day in the life| of a doctor
 
 Adaptability -> 
 
