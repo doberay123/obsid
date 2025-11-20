@@ -18,7 +18,9 @@ Yap about support and shit
 
 # What do you know about the |life/day in the life| of a doctor
 
-Adaptability -> 
+Adaptability -> (key features of adaptation in being a doctor) -> anecdote -> 
+
+
 
 
 
