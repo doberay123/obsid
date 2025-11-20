@@ -20,7 +20,7 @@ Yap about support and shit
 
 Adaptability -> (key features of adaptation in being a doctor) -> anecdote -> impact (understanding X allowed me to adapt)
 
-
+Some experience that I've had in the past
 
 
 
