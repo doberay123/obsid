@@ -23,7 +23,7 @@ Adaptability -> (key features of adaptation in being a doctor) -> anecdote -> im
 Some experience that I've had in the past
 
 
-
+# What challenges might doctors face
 
 
 
