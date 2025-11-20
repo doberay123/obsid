@@ -18,8 +18,7 @@ Yap about support and shit
 
 # What do you know about the day in the life of a doctor
 
-
-
+Adaptability -> 
 
 
 
