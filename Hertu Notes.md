@@ -10,6 +10,6 @@ SBL (scenario-based learning)
 
 In first year of the course they do SBL (scenario based learning), which from my understanding consists of working in teams with other medical students. This type of learning highly appeals to me.. (give personal example).
 
-End: 
+End: So overall, i am exited to be a part of the new MD course and be one of the first graduat
 
 
