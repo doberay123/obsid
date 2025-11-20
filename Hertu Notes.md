@@ -25,8 +25,3 @@ Some experience that I've had in the past
 
 # What challenges might doctors face
 
-
-
-
-
-
