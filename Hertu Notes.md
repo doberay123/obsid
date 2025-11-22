@@ -35,3 +35,6 @@ I
 K
 E
 S
+
+
+Stressful Decision anecdote
