@@ -4,4 +4,7 @@ Note: magnesium **biglycinate** is a more precise term for the molecule being di
 
 
 
+
+
 References:
+1. https://pmc.ncbi.nlm.nih.gov/articles/PMC12412596/#s0006
